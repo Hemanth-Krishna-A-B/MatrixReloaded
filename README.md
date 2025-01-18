@@ -1,8 +1,10 @@
 The Final Hunt 🕵️‍♂
+
 Pssst...? Don’t know where to start? 🤔 Don’t worry, Marcelle wasn’t exactly a master at keeping things hidden... (Just like his emotions, which led people to thinking he was a bit off. 😅) But hey, look carefully enough, and you might just stumble upon something. Ready? Let’s go... 👀
 
 Clue 1:
 "Unlock the hidden truth, the flag is the key." ✈ 🏢
+
 Clue 2:
 "Amid the chaos, his voice was but a faint echo..." 📣
 
